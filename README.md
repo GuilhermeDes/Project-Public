@@ -1,1 +1,1 @@
-# Project-Public
+# Project-Public; Aqui está localizado todo os meu projetos de estudo e profissionais, que foram realizados nesse processo de evolução. Todos os projetos deste local estão livres de direitos e disponivel para dowload.                                                                                                                             
